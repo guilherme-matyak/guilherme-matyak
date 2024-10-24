@@ -1,4 +1,4 @@
-##OLÁ LUTO POR ROBERTO FROTA👋
+##OLÁ 👋
 Boas vindas ao meu perfil 💙💙
 Meu nome é guilherme
 
